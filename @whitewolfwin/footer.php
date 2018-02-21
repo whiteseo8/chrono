@@ -1,0 +1,1 @@
+<br /><center>Powered by�� վȺϵͳ</center>
